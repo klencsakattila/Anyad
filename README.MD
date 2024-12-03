@@ -1,0 +1,1 @@
+Nemtom mit csinalok
